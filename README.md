@@ -1,4 +1,4 @@
-Please add group member!
+Names of our group memebers
 Yonas bekele
 Tsion yegeremu
 Dawit teka
